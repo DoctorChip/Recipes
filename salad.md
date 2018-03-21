@@ -11,7 +11,7 @@ Serves: Probably 2 as a main and 4 as a side.
  - 1 medium red onion (if you use white I'll cry (no pun intended))
  - 6" cucumber
  - 3 small tomatoes
- - A handful of raddish
+ - A handful of radish
 
 ##### Dressing ######
  - Salt
@@ -23,13 +23,13 @@ Serves: Probably 2 as a main and 4 as a side.
 #### Method ####
 
 ##### Salad #####
-1. Wash yo' vegetables. No one wants none of that dirt shit in their salad. Urgh. Plus you might get salmonella if you don't.
+1. Wash yo' vegetables. No one wants none of that dirt shit in their salad. Urgh. Plus you might get E. coli if you don't.
 2. Take yo' celery and lightly peel that shit. You don't want any stringy celery strands. It makes a difference! DO IT! After peeled, cut into quarters so you're left with 4 smaller sticks. Slice the sticks in half lengthways so you now have 8 sticks. Dice the sticks into 0.5cm cubes.
 3. Quarter your tomatoes, and remove the wet bits. No liquid in yo' salad! It'll A) keep better without the wetness and B) the dressing will take better. Cut the quarters into thin, 0.5cm strips lengthways and again dice into 0.5cm cubes.
 4. Repeat the same step with your cucumber. Cut it in half - scoop out the softer, wet centre. Cut into 0.5cm long strips and dice into 0.5cm cubes.
 5. Dice your red onion into 0.5cm cubes. If you don't know how to dice an onion look it up on YouTube.
 6. Dice your peppers into 0.5cm cubes.
-7. Thinly slice your raddishes. Nice, paper-thin circles of raddish. Mmmmm. If you have a madolin you can use that.
+7. Thinly slice your radishes. Nice, paper-thin circles of radish. Mmmmm. If you have a madolin you can use that.
 8. Mix all your ingredients together!
 
 ##### Dressing #####
